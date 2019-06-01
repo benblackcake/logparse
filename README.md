@@ -1,3 +1,3 @@
 # EXCEL REPORT
 
-![Imgur](https://imgur.com/nzFX6Za)
+![Imgur](https://i.imgur.com/nzFX6Za.jpg)
